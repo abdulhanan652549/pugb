@@ -1,5 +1,5 @@
 
-# pugb
+# pubg
 my name is wadood
 like me :)
 Iam student of your college
